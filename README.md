@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on Pixel Papercraft
 - 📫 How to reach me: el_santyxalmada on Instagram
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I´m Generator Engineer for Pixel Papercraft. you can look at my generator on
-URL=https://argenticityzenx.github.io/#minecraft-mickey-ears
+- ⚡ Fun fact: I´m Generator Engineer for Pixel Papercraft. you can look at my generator on https://argenticityzenx.github.io/#minecraft-mickey-ears
 
 
 <!---
